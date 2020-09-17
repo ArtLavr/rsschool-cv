@@ -3,7 +3,6 @@
 Located in **Brest, Belarus**
 **+375 33 320 44 13**
 
-
 ## Summary
 
 The main thing that im into is English, wanna speak fluently and be on the really high level in English. Besides i'm learning JS that kinda interesting for me. 
